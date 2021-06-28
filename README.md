@@ -1,1 +1,1 @@
-# 27-dars--amaliyot
+# dom-amaliyot-start
